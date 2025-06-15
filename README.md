@@ -56,9 +56,9 @@ prepnepal.com
 
 ### 🤝 Let’s Connect
 
-- 🔗 [LinkedIn](https://www.linkedin.com/in/YOUR_LINKEDIN)
+- 🔗 [LinkedIn](https://www.linkedin.com/in/mr-khanal-111887214/)
 - 🌐 [Portfolio Website](https://YOUR-WEBSITE.com)
-- 📫 Email: your.email@example.com
+- 📫 Email: sujalkhanal25@gmail.com
 
 ---
 
